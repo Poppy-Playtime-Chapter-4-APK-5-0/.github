@@ -1,5 +1,5 @@
 # **Descubre Poppy Playtime Chapter 4 APK: Una Nueva Aventura de Terror Inmersiva**
-## Descargar: ✅[Poppy Playtime Chapter 4 APK](https://spoo.me/9LHAfs) 🔗📲
+
 
 ![image](https://github.com/user-attachments/assets/8733500c-a680-430d-8f07-7d246d8dcacc)
 
